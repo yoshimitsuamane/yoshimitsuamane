@@ -1,4 +1,4 @@
-- Hola, Soy Alex o mas conocido en internet como Yoshimitsu Amane.
+- Hola, soy Yoshimitsu Amane.
 - Tengo 19 años
 - Productor Musical
 - Anti-Comunista Libertario 
