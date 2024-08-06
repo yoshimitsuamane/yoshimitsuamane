@@ -1,0 +1,7 @@
+- Hola, Soy Alex o mas conocido en internet como Yoshimitsu Amane.
+- Tengo 19 años
+- Productor Musical
+- Anti-Comunista Libertario 
+- En contra de la cultura Woke
+- En contra de los Lobbys LGBTIQ
+- En contra de la izquierda internacional
