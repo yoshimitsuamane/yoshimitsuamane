@@ -1,6 +1,7 @@
 - Hola, soy Yoshimitsu Amane.
 - Tengo 19 años
 - Productor Musical
+- Inversor de Microsoft, Nvidia y multiples empresas tecnologicas tanto argentinas como extranjeras 
 - Anti-Comunista Libertario 
 - En contra de la cultura Woke
 - En contra de los Lobbys LGBTIQ
